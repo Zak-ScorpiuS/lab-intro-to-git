@@ -5,6 +5,4 @@
 
 # Hobbies
 
-*Traveling
-*Videogames
-*Scuba Dive
+ Cool hobbies but they had to go
