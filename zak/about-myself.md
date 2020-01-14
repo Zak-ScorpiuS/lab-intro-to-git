@@ -8,3 +8,5 @@
 *Traveling
 *Videogames
 *Scuba Dive
+
+I was born in Fez (Morocco)
